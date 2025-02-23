@@ -1,5 +1,5 @@
 # Chapter Three
-## The letters from ur mom
+## THE LETTERS FROM UR MOM
 
 The escape of the Brazilian boa constrictor got Harry his big ass bozo yeeted. By the time he was allowed out of his cupboard again, the summer holidays had started and Dudley had already cracked his new iphone screen, smashed his gaming laptop playing fortnite, and, first time out on his racing bike, yeeted into old, crusty Mrs. Figg as she crossed Privet Drive on her crutches.
 
