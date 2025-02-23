@@ -1,15 +1,15 @@
 # Chapter Three
 ## The letters from ur mom
 
-The escape of the Brazilian boa constrictor got Harry his big ass bozo yeeted. By the time he was allowed out of his cupboard again, the summer holidays had started and Dudley had already cracked his new iphone screen, smashed his gaming laptop playing fortnite, and, first time out on his racing bike, knocked down old, crusty Mrs. Figg as she crossed Privet Drive on her crutches.
+The escape of the Brazilian boa constrictor got Harry his big ass bozo yeeted. By the time he was allowed out of his cupboard again, the summer holidays had started and Dudley had already cracked his new iphone screen, smashed his gaming laptop playing fortnite, and, first time out on his racing bike, yeeted into old, crusty Mrs. Figg as she crossed Privet Drive on her crutches.
 
 Harry was glad school was over, but there was no escaping Dudley’s crew, who visited da crib every single day. Piers, Dennis, Malcolm, and Gordon were all thicc af and stupid, but as Dudley was the thiccest and stupidest mf of the lot, he was the leader. The rest of them were all quite happy to join in Dudley’s favorite sport: Harry Hunting.
 
 This was why Harry spent as much time as possible out of da crib, wandering around and thinking about the end of the holidays (which felt about as long as the first covid lockdown) where he could see a smol ray of hope. When September came he would be going off to secondary school and, for the first time in his life, he wouldn’t be  w/ Dudley. Dudley had been accepted at Uncle Vernon’s ol' private tory school, Smeltings. Piers Polkiss was going there too. Harry, on the other hand, was going to Stonewall High, the local public school. Dudley thought this was well funny.
 
-“They stuff people’s heads down the toilet the first day at Stonewall,” he told Harry. “Want to come upstairs and practice?”
+“They big yeet people’s heads down the toilet the first day at Stonewall,” he told Harry. “Wanna come upstairs and practice?”
 
-“No, thanks,” said Harry. “The poor toilet’s never had anything as mid as your head down it — it might be triggered.” Then he ran, before Dudley's smooth brain could work out what he’d said.
+“No sirrr,” said Harry. “The poor toilet’s never had anything as mid as your head down it — it might be triggered.” Then he ran, before Dudley's smooth brain could work out what he’d said.
 
 One day in July, Aunt Petunia took Dudley to London to buy his Smeltings non drip scheiße, leaving Harry at Mrs. Figg’s. Mrs. Figg wasn’t as bad as usual. It turned out she’d broken her leg tripping over one of her cats, and she didn’t seem quite as fond of them as before. She let Harry play fortnite and gave him a bit of chocolate cake that tasted as though she’d had it for several years; it was really quite a sussy amogus cake.
 
@@ -71,11 +71,11 @@ Uncle Vernon looked at the charity bag, cringed in disgust— (thinking he was t
 
 “Dad!” said Dudley suddenly. “Dad, Harry’s got somepin kinda sus!”
 
-Harry was on the point of unfolding his letter, which was written on the same heavy paper(???) as the envelope, when it was jerked sharply out of his hand by Uncle Vernon.
+Harry was on the point of unfolding his letter, which was written on the same heavy paper(???) as the envelope, when it was yoinked sharply out of his hand by Uncle Vernon.
 
-“That’s mine!” said Harry, trying to snatch it back.
+“That’s mine!” said Harry, trying to yoink it back.
 
-“Bet. Who’d be writing ya?” sneered Uncle Vernon, shaking the letter open with one hand and glancing at it. His face went from red to green faster than a set of traffic lights. And it didn’t stop there. Within seconds it was the grayish white of old porridge.
+“Bet. Who’d be writing ya?” sneered Uncle Vernon, shaking the letter open with one hand and glancing at it. He got salty quick while reading it.
 
 “P-P-Petunia!” he gasped.
 
@@ -99,11 +99,11 @@ Harry didn’t move.
 
 “OUT!” roared Uncle Vernon, and he took both Harry and Dudley by the scruffs of their necks and yeeted them into the hall, slamming the kitchen door behind them. Harry and Dudley promptly had a lil sissy-fight over who would listen at the keyhole; Dudley won, so Harry, his glasses dangling from one ear, lay flat on his stomach to peep through the crack between door and floor. Harry considered venting into the room like the sussy imposter he was, but eventually decided against it.
 
-“Vernon,” Aunt Petunia was saying in a quivering voice, “look at the address — how could they possibly know where he gets some z's? You don’t think they’re watching da crib?”
+“Vernon,” Aunt Petunia was saying in a quivering voice, “look at the address — how could they possibly know the tea of him chilling in the cupboard? You don’t think they’re watching da crib?”
 
 “Watching — spying — proberbly hacked the Alexa and are listening in on us,” muttered Uncle Vernon wildly.
 
-“But what should we do, Vernon? Should we write back? Tell them we don’t want —”
+“Is this deadass, Bae? Should we write back? Tell them we don’t want —”
 
 Harry could see Uncle Vernon’s shiny, drippy black shoes pacing up and down the kitchen.
 
@@ -181,7 +181,7 @@ Something came whizzing down the kitchen chimney as he spoke and caught him shar
 
 Uncle Vernon seized Harry around the waist and threw him into the hall. When Aunt Petunia and Dudley had run out with their arms over their faces, Uncle Vernon slammed the door shut. They could hear the letters still streaming into the room, bouncing off the walls and floor.
 
-“That does it,” said Uncle Vernon, trying to speak calmly but pulling great tufts out of his mustache at the same time. “I want you all back here in five minutes ready to leave. We’re going away. Just pack some clothes. No arguments!”
+“That does it,” said Uncle Vernon, trying to speak calmly but pulling great tufts out of his mustache at the same time. “I want you all back here in five minutes ready to bounce. We’re going away. Just pack some clothes. No arguments!”
 
 He looked so dangerous with half his mustache missing that no one dared argue. Ten minutes later they had wrenched their way through the boarded-up doors and were in the car, speeding toward the highway. Dudley was sniffling in the back seat; his father had hit him round the head for holding them up while he tried to pack his television, VCR, and computer in his sports bag.
 
